@@ -27,7 +27,7 @@ Da série "awesome-qualquer-tecnologia-aqui" esse é um compilado de frases e ma
 * Mania: Coloque um filme na TV e deite no sofá. Durma o filme todo. Quando acabar, vc acorda e coloca outro filme. Durma novamente. Agora você já pode dizer: "Poxa, perdi o filme, preciso ver de novo".
 
 * (Situação: Escolhendo um filme): OS INCRÍVEIS. VOCÊ PODE ESCOLHER, O 1 OU 2.
-* VAMO BOTAR XERECA (Shrek)
+
 * O 2 ou 1, os incríveis, escolhe. To te dando opção. ( Sim, novamente)
 
 * Tive uma epifania hoje (fale gesticulando como mostra a imagem abaixo)
