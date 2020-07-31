@@ -17,8 +17,11 @@ Da série "awesome-qualquer-tecnologia-aqui" esse é um compilado de frases e ma
 * Mooo, to com fome.
 * aaaaaaaAAAAAAAAA HASUHAUSHUAHSUAHSUAHSUAHSHSUASHASH 
 * HAHAUHUAHUHAUHAUHUAHUAHAUHAU passou.   PFAAAAA HAUSHUAHSUAHUSHUAHS
-
+* (Situação: Seu pai com qualquer camisa nova): Quero essa camisa. 
+*
 * E o copo da felicidade? Já pediu?
+* Pediu? ...................  hein? ............. hum?
+* Liguei pra dete, de, detetiza não. Dedetização. É com D né, descobri.
 
 * Tive uma epifania hoje (fale gesticulando como mostra a imagem abaixo)
 
