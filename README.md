@@ -29,6 +29,7 @@ Da série "awesome-qualquer-tecnologia-aqui" esse é um compilado de frases e ma
 * (Situação: Escolhendo um filme): OS INCRÍVEIS. VOCÊ PODE ESCOLHER, O 1 OU 2.
 
 * O 2 ou 1, os incríveis, escolhe. To te dando opção. ( Sim, novamente)
+* Entupiu, tem que comprar diabo verde. (a outra pessoa fala: "Vou no mercado então") - Faça a carinha do gato de botas e fale "Vai trazer Waffles?"
 
 * Tive uma epifania hoje (fale gesticulando como mostra a imagem abaixo)
 
