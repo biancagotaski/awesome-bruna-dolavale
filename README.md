@@ -18,10 +18,17 @@ Da série "awesome-qualquer-tecnologia-aqui" esse é um compilado de frases e ma
 * aaaaaaaAAAAAAAAA HASUHAUSHUAHSUAHSUAHSUAHSHSUASHASH 
 * HAHAUHUAHUHAUHAUHUAHUAHAUHAU passou.   PFAAAAA HAUSHUAHSUAHUSHUAHS
 * (Situação: Seu pai com qualquer camisa nova): Quero essa camisa. 
-*
 * E o copo da felicidade? Já pediu?
 * Pediu? ...................  hein? ............. hum?
 * Liguei pra dete, de, detetiza não. Dedetização. É com D né, descobri.
+* (Situação: olhe muito perto no rosto de alguém até a pessoa perguntar o que foi e diga): Eu preciso ver seus átomos.
+* Vai te pina colada?
+* QUEIJO. BOTA QUEIJO.
+* Mania: Coloque um filme na TV e deite no sofá. Durma o filme todo. Quando acabar, vc acorda e coloca outro filme. Durma novamente. Agora você já pode dizer: "Poxa, perdi o filme, preciso ver de novo".
+
+* (Situação: Escolhendo um filme): OS INCRÍVEIS. VOCÊ PODE ESCOLHER, O 1 OU 2.
+* VAMO BOTAR XERECA (Shrek)
+* O 2 ou 1, os incríveis, escolhe. To te dando opção. ( Sim, novamente)
 
 * Tive uma epifania hoje (fale gesticulando como mostra a imagem abaixo)
 
